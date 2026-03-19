@@ -1,1 +1,1 @@
-# mini-guia-controle-financeiro-notebooklm
+# Mini guia controle financeiro - notebooklm
