@@ -16,3 +16,7 @@ Os principais objetivos deste estudo são:
 Curadoria de Fontes
 
 As seguintes fontes foram utilizadas para a construção deste estudo:
+https://www.gov.br/investidor/pt-br/educacional/publicacoes-educacionais/guias/guia-de-planejamento-financeiro/guia-planejamento-financeiro.pdf
+https://cdn.bookey.app/files/pdf/book/pt/a-psicologia-do-dinheiro.pdf
+https://youtu.be/in0XbfQEm2A?si=Kj7vUOzNSrlAkb70
+https://youtu.be/oqtLNgLPlKM?list=TLGGt9QGROE0dTYyMDAzMjAyNg
